@@ -1,0 +1,1 @@
+# vaishnavitrust-wp-theme
